@@ -1,3 +1,6 @@
+[![pain.png](https://i.postimg.cc/CKg4SY1J/pain.png)](https://postimg.cc/gxghHC36)
+
+
 ## Integrantes: :heavy_check_mark:
 
 
