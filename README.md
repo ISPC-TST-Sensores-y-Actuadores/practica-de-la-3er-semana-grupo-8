@@ -5,7 +5,7 @@
 
 •	Emilio Andres Vera <> https://github.com/evera8
 
-•	María Victoria Schafrik <> github.com/MaviSchaf
+•	María Victoria Schafrik <> https://github.com/MaviSchaf
 
 •	Eric Samuel Barrionuevo <> https://github.com/samuelbarrionuevo
 
