@@ -9,10 +9,10 @@
 
 •	Eric Samuel Barrionuevo <> https://github.com/samuelbarrionuevo
 
-•	Rojas Jorge Daniel <> github.com/Cabro645
+•	Rojas Jorge Daniel <> https://github.com/Cabro645
 
-•	Rocío Antonella Pulitta <> github.com/RocioPulitta
-•	****** <> *******
+•	Rocío Antonella Pulitta <> https://github.com/RocioPulitta
+•	
 
 
 
